@@ -17,9 +17,6 @@
  <p align=center>
 $\color{#69375b}{\textsf{Please check my info rentry}}$ $\color{#b37643}{\textsf{before any interaction,}}$ $\color{#701010}{\textsf{expecially if you're a minor!}}$ 
  </p>
-   <p align=center>
-  And yes I HATE 1Vs I do not care if I'm a possible 1V myself I am NOT!!!!
- </p>
 
   <p align=center>
 <img width="130" src="https://64.media.tumblr.com/5a93a2f4c2de973f3b0a39d698bc1c5c/4e0d1ce909e0596c-f5/s400x600/e129b43c2bc521cf298aebe8cf4cfeda8cd9de8a.gifv" />
