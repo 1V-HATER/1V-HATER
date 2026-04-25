@@ -19,7 +19,7 @@ $\color{#69375b}{\textsf{Please check my info rentry}}$ $\color{#b37643}{\textsf
  </p>
 
   <p align=center>
-The name is just for sillies i love being silly and whimsy guys do NOT take this seriously
+My user is just for sillies i love being silly and whimsy guys do NOT take this seriously
  </p>
 
   <p align=center>
