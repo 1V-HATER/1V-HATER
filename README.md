@@ -23,9 +23,7 @@ My user is just for sillies i love being silly and whimsy guys do NOT take this 
  </p>
 
  <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ihnus4x0gc6lfgdex6kktnzdc&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=8d2525&bar_color_cover=false">
-  </a>
+  <img width="290" alt="pure masterpeace" src="https://file.garden/aG4uPTNO_Dlar84S/bonni.gif" />
 </p>
 
   <p align=center>
