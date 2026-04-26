@@ -22,6 +22,12 @@ $\color{#69375b}{\textsf{Please check my info rentry}}$ $\color{#b37643}{\textsf
 My user is just for sillies i love being silly and whimsy guys do NOT take this seriously
  </p>
 
+ <p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ihnus4x0gc6lfgdex6kktnzdc&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=8d2525&bar_color_cover=false">
+  </a>
+</p>
+
   <p align=center>
 <img width="130" src="https://64.media.tumblr.com/5a93a2f4c2de973f3b0a39d698bc1c5c/4e0d1ce909e0596c-f5/s400x600/e129b43c2bc521cf298aebe8cf4cfeda8cd9de8a.gifv" />
 <img width="150" alt="he low" src="https://file.garden/aG4uPTNO_Dlar84S/solooowwwwww.gif" /> 
