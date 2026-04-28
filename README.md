@@ -7,8 +7,8 @@
 <img width="90" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/book" /> ᅠ⸝⸝ᅠ
       <a href="https://rentry.co/slimeknight-">
 <img width="90" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/yy" /> ᅠ ⧽ᅠ
-             <a href="https://rentry.co/slimeknight-">
-<img width="94" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/dit" />
+             <a href="https://x.com/duyxihn">
+<img width="94" alt="cre" src="https://file.garden/aG4uPTNO_Dlar84S/dit" />
 </p>
 
  <p align=center>
