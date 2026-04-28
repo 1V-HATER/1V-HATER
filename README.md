@@ -1,11 +1,16 @@
 <p align="center">
- <img src="https://komarev.com/ghpvc/?username=1V-HATER&color=6e2121&style=plastic&label=ᅠ🗡ᅠ" alt="Profile Views" />
+ <img src="https://komarev.com/ghpvc/?username=1V-HATER&color=6e2121&style=plastic&label=ᅠ🗡ᅠ" alt="Profile Views" /> ᅠᅠᅠᅠᅠᅠᅠ<img width="20" alt="minilow" src="https://file.garden/aG4uPTNO_Dlar84S/juj" </p>  <img width="20" alt="miniless" src="https://file.garden/aG4uPTNO_Dlar84S/sha" </p>
 </p>
- 
-<p align="center">
-<i><a href="https://hash8f2240.atabook.org">atabook</a></i>ᅠᅠᅠ<img alt="gif" src="https://64.media.tumblr.com/ed37c64248f1c05a2c4000dd2b7c4068/e95425e74245493d-d0/s75x75_c1/b01643d063389a9f770ce31c0b102b0dbf180eda.gifv" /> ᅠᅠᅠ<b><a href="https://rentry.co/slimeknight-">rentry</a></b>ᅠᅠᅠ⧽ᅠᅠᅠ<a href="https://x.com/duyxihn">art credit</a>
-  </p>
-  
+
+ <p align=center>
+    <a href="https://hash8f2240.atabook.org">
+<img width="90" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/book" /> ᅠ⸝⸝ᅠ
+      <a href="https://rentry.co/slimeknight-">
+<img width="90" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/yy" /> ᅠ ⧽ᅠ
+             <a href="https://rentry.co/slimeknight-">
+<img width="94" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/dit" />
+</p>
+
  <p align=center>
 <img width="510" alt="sharplow" src="https://file.garden/aG4uPTNO_Dlar84S/lyubov" />
 </p>
