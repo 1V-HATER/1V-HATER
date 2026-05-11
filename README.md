@@ -15,8 +15,11 @@
 <img width="510" alt="sharplow" src="https://file.garden/aG4uPTNO_Dlar84S/lyubov" />
 </p>
  <p align=center>
-Do not take my user seriously it's not more than a joke
+Do not take my user seriously it's not more than a joke.
  </p>
+  <p align=center>
+ I use my status the way it was intended to be used
+  </p>
 
  <p align="center">
   <img width="290" alt="pure masterpeace" src="https://file.garden/aG4uPTNO_Dlar84S/bonni.gif" />
