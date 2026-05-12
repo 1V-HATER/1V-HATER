@@ -1,5 +1,5 @@
 <p align="center">
- <img src="https://komarev.com/ghpvc/?username=1V-HATER&color=6e2121&style=plastic&label=ᅠ🗡ᅠ" alt="Profile Views" /> ᅠᅠᅠᅠᅠᅠᅠ<img width="20" alt="minilow" src="https://file.garden/aG4uPTNO_Dlar84S/juj" </p>  <img width="20" alt="miniless" src="https://file.garden/aG4uPTNO_Dlar84S/sha" </p>
+ <img src="https://komarev.com/ghpvc/?username=1V-HATER&color=6e2121&style=plastic&label=ᅠ🗡ᅠ" alt="Profile Views" /> ᅠᅠᅠᅠᅠᅠᅠ<img width="20" alt="miniless" src="https://file.garden/aG4uPTNO_Dlar84S/sha" </p>
 </p>
 
  <p align=center>
