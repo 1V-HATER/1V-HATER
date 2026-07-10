@@ -1,7 +1,7 @@
 <p align="center">
  <img src="https://komarev.com/ghpvc/?username=1V-HATER&color=6e2121&style=plastic&label=ᅠ🗡ᅠ" alt="Profile Views" /> ᅠᅠᅠᅠᅠᅠᅠ<img width="20" alt="miniless" src="https://file.garden/aG4uPTNO_Dlar84S/sha" </p>
 </p>
-
+REMAKING!!!!!!!!!!!!!!!!!1
  <p align=center>
     <a href="https://hash8f2240.atabook.org">
 <img width="90" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/book" /> ᅠ⸝⸝ᅠ
